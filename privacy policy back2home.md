@@ -10,8 +10,7 @@ privacy policy
 Telegram-магазин back2home.
 
 Ментор:
-Email: soulsavior11@proton.me  
-
+Email: back2homelegal@protonmail.com
 ---
 
  2. Сбор персональных данных
