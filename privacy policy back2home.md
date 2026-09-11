@@ -102,7 +102,8 @@ Email: soulsavior11@proton.me
 
  11. КОНТАКТЫ
 
-Email: soulsavior11@proton.me
+Email: back2homelegal@protonmail.com
+
 
 ---
 Проводя любую коммуникацию с Ментором, Пользователь соглашается с настоящей Политикой.
